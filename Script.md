@@ -24,6 +24,8 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 Bob met the Unicorn King who granted him magic powers.
 Everyone died the end.
+Zookeeper did a thing
+The end.
 
 ## Cast
 
